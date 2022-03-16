@@ -1,1 +1,1 @@
-Bonjour, je m'appelle Vavasseur Regis
+Bonjour, je m'appelle VAVASSEUR Regis
